@@ -13,3 +13,5 @@ Until then you can message me on discord.
 
 - 🌎 Located in germany
 - 👨🏻‍💻 Software Engineer
+
+<a href="https://discordapp.com/users/321973732413407233">discord</a>
